@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently studying in Imperial College London
 - 🌱 Learning Computer Science
-- 👀 Fall in love with ZY for 3Years
+- 👀 Fall in love with ZY for 4 Years
 - 👯 目前做梦素材是csgo打到FACEIT lv10 🧱
 
 
